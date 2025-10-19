@@ -1,0 +1,9 @@
+Chilindio,50,7,Chileno
+Veneco,45,6,Maduro
+Plantín,40,5,Plantón
+Electrozo,55,8,Electrozón
+Rocoso,60,4,Rocón
+Fantasmín,35,9,Fantasmazo
+Venenoide,42,6,Venonox
+Draguito,70,10,Dragónix
+Nubecita,30,3,Nubón

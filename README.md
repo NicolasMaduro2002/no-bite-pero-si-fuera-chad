@@ -10,4 +10,6 @@ acá dejo el mediafire con el jewgo ya compilado, extraigan y ejecuten el Manfre
 
 
 
-how when te quitan permisos de subir imagenes but solo enviaste un link porno random que te salio en las primeras busquedas al poner "porno" en google cuando le quitaste el https para evitar que salieran imagenes para ver si los meedz podian ver quien subia confesiones y quien no xdxdxdxd
+how when te quitan permisos de subir imagenes but solo enviaste un link porno random que te salio en las primeras busquedas al poner "porno" en google cuando le quitaste el https para evitar que salieran imagenes para ver si los meedz podian ver quien subia confesiones y quien no xdxdxdxd: yes bite mejor juego del año
+proximamente en diciembre: yes bite con raycaster y una version con MonoGame
+-MonoRisa

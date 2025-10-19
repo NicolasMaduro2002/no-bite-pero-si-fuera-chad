@@ -3,7 +3,7 @@ juego chad hecho en C# enteramente usando .NET 8.0. Juego chad, que más puedo d
 acá dejo el mediafire con el jewgo ya compilado, extraigan y ejecuten el Manfred Von Richtofen.exe, descarguen .NET 8.0 para que todo les corra bien
 
 
-
+https://www.mediafire.com/file/qvmuoia1i4jq6yt/MonoRisa.rar/file
 
 
 
